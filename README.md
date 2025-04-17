@@ -2,5 +2,4 @@
 
 Good morning, Mrs Kane!
 
-My last favorite song:
-
+I'am learning to play "Wake me up when Septe,ber ends" by Greenday
