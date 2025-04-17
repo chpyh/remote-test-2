@@ -3,3 +3,6 @@
 Good morning, Mrs Kane!
 
 I'am learning to play "Wake me up when September ends" by Greenday on a guitar
+
+It is not easy
+I'm tired
